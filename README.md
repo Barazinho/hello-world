@@ -1,5 +1,8 @@
 # hello-world
-Initial Github repository
+O Product Manager Where Art Thou?
 
-Experienced software Product Manager with over 15 years of experience in a variety of industries including insurance network management, news production, and library information management. 
-Innovative thinker with a passion for building tools that make life better
+I've got prospects! I'm bonafide!
+
+(more like Vernon T. Waldrip, less like Ulysses Everet McGill)
+
+
